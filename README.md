@@ -1,0 +1,2 @@
+# Tha-idea-
+Fintech 
